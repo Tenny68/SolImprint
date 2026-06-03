@@ -1,6 +1,6 @@
 # SolImprint
 
-Independent Publishing Brand, founded by Tenny
+Independent Publishing Brand
 
 Clarity does not always come from speaking; sometimes it comes from written thoughts.
 SolImprint is an independent digital publishing brand that publishes original journals created under the SolJournal series that promote emotional clarity and self-awareness.
