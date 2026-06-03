@@ -6,6 +6,7 @@ Clarity does not always come from speaking; sometimes it comes from written thou
 SolImprint is an independent digital publishing brand that publishes original journals created under the SolJournal series that promote emotional clarity and self-awareness.
 
 Created with intention by Tenny.
+
 The Sol Essence. 💜
 
 Journal Listing 
